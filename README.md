@@ -28,7 +28,6 @@ Looking for: 1 pilot supermarket (2-3 branches) in Harare for free trial.
 ### 👨‍💻 Founder
 HIT Student, Harare - Building for Zimbabwean retail.
 
-Contact: [Add your WhatsApp/Email]
-
+Contact: [+263786199653/realkondo2006@gmail.com]
 ---
 **Want to pilot this in your supermarket? Open an Issue or contact me.**
